@@ -18,3 +18,7 @@ Recipes
 - 1 egg white
 -----
 - Dry shake
+### Dark 'N Stormy
+- 1.5 oz Gosling's Black Seal Rum
+- 4 oz Barritts Ginger Beer
+- 1 lime wedge
