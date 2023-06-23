@@ -49,3 +49,17 @@ https://www.youtube.com/watch?v=0qq2MACXNWk
 ## BBQ
 ### Dry Rub for Smoking Chicken
 https://www.windingcreekranch.org/dry-rub-for-chicken/
+
+## Ayam Percik
+https://tasteasianfood.com/ayam-percik/
+- Chicken
+- Salt
+- Tumeric
+- Dried Chilies
+- Garlic
+- Ginger
+- 3 Onions
+- Lemongrass
+- Tamarind Juice
+- Palm Sugar
+- 150ml Coconut Cream
