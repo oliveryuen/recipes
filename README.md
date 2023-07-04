@@ -63,3 +63,7 @@ https://tasteasianfood.com/ayam-percik/
 - Tamarind Juice
 - Palm Sugar
 - 150ml Coconut Cream
+
+## Tumeric Chicken
+https://www.familyfoodonthetable.com/easy-turmeric-chicken-15-minutes/
+- Modification (Kosher Salt replaced by Yim Gook Kai Seasoning + small pinch of Kosher salt)
